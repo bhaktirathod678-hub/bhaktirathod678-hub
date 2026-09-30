@@ -14,5 +14,5 @@ Currently, I'm building practical backend applications and exploring early AI in
 
 ## Connect With Me
 
-- Instagram: [@your_username](https://www.instagram.com/bhaktiofficial112/)
+- Instagram: (https://www.instagram.com/bhaktiofficial112/)
 - Email: bhaktirathod678@gmail.com
